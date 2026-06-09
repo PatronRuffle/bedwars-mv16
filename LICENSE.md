@@ -1,4 +1,4 @@
-#  
+#  bedwars Scripts secure is the best bedwars Script, featuring auto-farm and unlimited stamina. Safe and powerful for all your needs.
 
 
 
